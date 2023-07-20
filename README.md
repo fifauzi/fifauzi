@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **fifauzi24@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1zWmtPbaxCn-ofLQpzSzVynm1JRhjjuVi/view?usp=sharing](https://drive.google.com/file/d/1zWmtPbaxCn-ofLQpzSzVynm1JRhjjuVi/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1rQjsMT-AejOCTL-RFwmIcsMa-DB97BcP/view?usp=sharing](https://drive.google.com/file/d/1rQjsMT-AejOCTL-RFwmIcsMa-DB97BcP/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am Friendly and Funny**
 
